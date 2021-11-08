@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Teutonic37
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning data sceince and shit like that
+- 🌱 I’m currently learning data sceince 
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me "you cant"
 
